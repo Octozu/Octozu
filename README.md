@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Java**
 
-- 📫 How to reach me **octozu#0001**
+- 📫 How to reach me **Octozu#0001**
 
 - ⚡ Fun fact **Axo is gay**
 
