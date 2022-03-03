@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Octozu#0001**
 
-- ⚡ Fun fact **Axo is gay**
+- ⚡ Fun fact **Insomnia is better than Postman**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
