@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Java**
 
-- 📫 How to reach me **Octozu#0001**
+- 📫 How to reach me **Octozu#0001 on Discord**
 
 - ⚡ Fun fact **Insomnia is better than Postman**
 
